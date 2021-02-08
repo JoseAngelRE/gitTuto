@@ -1,0 +1,1 @@
+Detallando informacion
